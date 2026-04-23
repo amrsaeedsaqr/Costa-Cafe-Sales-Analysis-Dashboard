@@ -29,4 +29,4 @@ Marketing: Launch a "Slow Sunday" discount or a "Cocoa/Hot Chocolate" promotion 
 
 Financial Strategy: Since cash usage is minimal, the business could explore "Cashless" hours to simplify end-of-day reconciliation.
 
-<img width="1588" height="715" alt="image" src="https://github.com/user-attachments/assets/92230365-687f-477e-8663-deb137cd9e02" />
+<img width="1590" height="723" alt="image" src="https://github.com/user-attachments/assets/8bd6c55c-d5ec-4258-87d5-2447874ea308" />
